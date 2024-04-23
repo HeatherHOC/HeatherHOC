@@ -2,7 +2,8 @@
 - 🧠 Meningioma Survivor - still on the journey, your health is your wealth⚕️
 - 🌱 The Beautiful Thing About Learning is Nobody Can Take it Away From You. -B.B. King
 - 💞️ Long Walks along the frozen shores of Lake Erie or Cozumel will never get old
-    / \__
+
+     / \__
  (    @\___
  /         O
 /   (_____/
